@@ -8,7 +8,7 @@
 
 ### Шкала депрессии Бека (основной)
 
-**Ссылка:** [https://медицинскийпортал.рф/shkala-depressii-beka/](https://медицинскийпортал.рф/shkala-depressii-beka/)
+**Ссылка:** [https://xn----7sbqjacjccexq1a0ac7l.xn--p1ai/shkala-depressii-beka/](https://медицинскийпортал.рф/shkala-depressii-beka/)
 
 Это самый распространенный тест на депрессию. Врачи могут дать тебе его на бумаге.
 
